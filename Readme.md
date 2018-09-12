@@ -1,12 +1,4 @@
-Ciao Matteo, ciao Simo,
 
- 
-
-questa mail per scambiare i nostri indirizzi e per condividervi i link visti oggi.
-
- 
-
-Account GIT gian: gianfranco.elia@mindly.it
 
  
 
